@@ -1,0 +1,2 @@
+# dauletkerey
+resume
